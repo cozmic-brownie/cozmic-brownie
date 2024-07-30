@@ -17,11 +17,12 @@ this made me chuckle
 
 ![Screenshot 2024-07-23 205443](https://github.com/user-attachments/assets/1cc7cb87-0167-491a-985a-e3f4aed5d324)
 
-DAMN TOM ?? 
+silly photo of tom dead (and no, i do not think his ass is hot and big, im dating someone ;-;) <-- i got asked that
+
 
 ![Screenshot 2024-07-16 122046](https://github.com/user-attachments/assets/7a49ae2d-1fb4-497d-a9be-6deebfb2e1fe)
 
 
 ![Screenshot 2024-07-20 135850](https://github.com/user-attachments/assets/1673c57d-559b-4853-96ef-572bd575d8fb)
 
-PLEASE BUY THIS FOR ME !! (dont, i dont want gay ppl watching me shower i get freaky)
+Vanessa..? 
