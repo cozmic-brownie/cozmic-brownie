@@ -25,7 +25,11 @@ $\textcolor{#beecf3}{ Are `you `sick `of` me.. would` you `like` to `be?⠀}$
 
 </p>
 <p align="center">
-<a href="https://ellierocks.straw.page/">strawpage</a>⠀⠀ <a href="https://arab.org/click-to-help/palestine/">Support Palestine </a> ⠀⠀ <a href="https://skibidiellieparker.atabook.org/">Sign Atabook </a>      
+<a href="https://ellierocks.straw.page/">strawpage</a>⠀⠀ <a href="https://arab.org/click-to-help/palestine/">Support Palestine </a> ⠀⠀ <a href="https://skibidiellieparker.atabook.org/">Sign Atabook </a>  
+
+ <p align="center">
+  <a href="https://pronouns.cc/@ellie.parkerfan">Pronouns Page (WIP) </a>
+ </p>
 
 
 
